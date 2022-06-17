@@ -1,5 +1,5 @@
-## **BẠN TRỞ THÀNH MỘT CON NGƯỜI KHÁC**
-
+# **BẠN TRỞ THÀNH MỘT CON NGƯỜI KHÁC**
+# ![Human Evolution](https://i.ibb.co/1QZMv6W/human-evolution.jpg)
 Mình xin chia sẻ về một hiện tượng mà mình nhận ra, và như tiêu đề đó là: **"Bạn trở thành một con người khác"**.
 
 > Trước đến nay từ khi bạn sinh ra đến khi lớn lên, bạn nghĩ rằng bạn 3 tuổi hay 30 tuổi, 15 tuổi (*đều là bạn*), thì đúng là như vậy. Bạn lớn lên theo thời gian và có thể bạn sống trong một ngôi nhà (*tất nhiên là bạn có một cái hộ chiếu duy nhất*), tên của bạn vẫn như vậy, ngày sinh của bạn vẫn như vậy, rất có thể thói quen hay những sở thích cá nhân của bạn hằng ngày vẫn như vậy (*hoặc nó có thể thay đổi*), và qua thời  gian chúng ta nghĩ rằng chúng ta vẫn là chúng ta, nếu có thay đổi cũng chỉ là một chút. Chúng ta nghĩ rằng tính cách của chúng ta là một thứ không bao giờ thay đổi, nếu mà bạn hướng ngoại thì bạn luôn luôn hướng ngoại, nếu bạn hướng nội bạn luôn luôn hướng nội, nếu bạn sợ nói trước đám đông thì bạn luôn luôn sợ nói trước đám đông, nếu bạn kém ngoại ngữ bạn sẽ luôn luôn kém ngoại ngữ hoặc bạn có thể học thêm một chút nhưng không bao giờ bạn tin rằng bạn trở thành một người khác, một người khác hoàn toàn, một người mà bạn không nhận ra. Bởi cái suy nghĩ đó đã ăn sâu vào trong chúng ta. Nghĩa là chúng ta nghĩ rằng chúng ta không bao giờ có thể thay đổi chúng ta, chúng ta có thể cố gắng, có thể học những thứ mới... Nhưng chúng ta luôn luôn là chúng ta, bạn luôn luôn là bạn, mình luôn luôn là mình.
